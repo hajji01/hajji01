@@ -4,7 +4,7 @@ I'm [Zakaria],am a web designer and developer, the founder at the helm, guiding 
 
 ## 🌐 Crafting Digital Experiences
 
-Join me on this exciting venture of innovation as we craft digital experiences that truly resonate with audiences. Based in [Lille,France], soswave.com is on a mission to explore new horizons.
+Join me on this exciting venture of innovation as we craft digital experiences that truly resonate with audiences. Based in [Lille,France], [soswave.com] is on a mission to explore new horizons.
 
 ## ✉️ Let's Connect!
 
